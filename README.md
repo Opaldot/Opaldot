@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Opaldot
+- 👀 I’m interested in 
+- 🌱 I’m currently learning ALX SE
+- 💞️ I’m looking to collaborate on any programming project
+- 📫 How to reach me 📞+2348053356699
+- 📨 oomoleye@ymail.com
